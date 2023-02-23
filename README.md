@@ -10,7 +10,7 @@
 🤣 4. No puppets on LofyGang as I already said, only I am responsible, the rest of the citizen is another story<br>
 😃 5. I don't work giving fake instagram followers, but in a company.<br>
 😄 6. Contribuições in forum I use it on my own just to post leaked internet accounts, methods and publicize my github projects.<br>
-😅 7. If I forget to quote something here, call me on telegram [@PolarLofy](https://t.me/PolarLofy).<br>
+😅 7. If I forget to quote something here, call me on telegram [@AkiraLofy](https://t.me/euakiraaaa).<br>
 😆 8. And what the fuck does Loft Life/Lite have to do with it.<br>
 😉 9. Another I stopped creating malware months ago<br>
 😎 10. [LofyTools](https://lofy.glitch.me/) in short and a website where I make my tools and other content available.
@@ -24,7 +24,7 @@
 
 > ### ❓ Why am I talking about this
 >
-> * I'm quoting this because in the last few days the Lofi Gang has become news of a hacker group that creates npm threats to other information and you can check it out [here](https://medium.com/checkmarx-security/lofygang-aad0c32d801c)
+> * I'm quoting this because in the last few days the Lofy Gang has become news of a hacker group that creates npm threats to other information and you can check it out [here](https://medium.com/checkmarx-security/lofygang-aad0c32d801c)
 
 ---------------------------------------
 
