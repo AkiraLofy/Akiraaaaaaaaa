@@ -17,8 +17,8 @@
 
 ---------------------------------------
 
-[![github-readme-twitter](https://github-readme-twitter.gazf.vercel.app/api?id=ppolar03)](https://github.com/gazf/github-readme-twitter)
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=tysudy&layout=compact&theme=radical)](https://github.com/anuraghazra/github-readme-stats)
+[![github-readme-twitter](https://github-readme-twitter.gazf.vercel.app/api?id=euakiraaaa)](https://github.com/gazf/github-readme-twitter)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=euakiraaaay&layout=compact&theme=radical)](https://github.com/anuraghazra/github-readme-stats)
 
 ---------------------------------------
 
