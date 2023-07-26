@@ -10,14 +10,13 @@
 🤣 4. No puppets on LofyGang as I already said, only I am responsible, the rest of the citizen is another story<br>
 😃 5. I don't work giving fake instagram followers, but in a company.<br>
 😄 6. Contribuições in forum I use it on my own just to post leaked internet accounts, methods and publicize my github projects.<br>
-😅 7. If I forget to quote something here, call me on telegram [@AkiraLofy](https://t.me/euakiraaaa).<br>
+😅 7. If I forget to quote something here, call me on instagram [@eu.akiraaaa](https://instagram.com/eu.akiraaaa).<br>
 😆 8. And what the fuck does Loft Life/Lite have to do with it.<br>
 😉 9. Another I stopped creating malware months ago<br>
 😎 10. [LofyTools](https://lofy.glitch.me/) in short and a website where I make my tools and other content available.
 
 ---------------------------------------
 
-[![github-readme-twitter](https://github-readme-twitter.gazf.vercel.app/api?id=euakiraaaa)](https://github.com/gazf/github-readme-twitter)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Akiraaaaaaaaa&layout=compact&theme=radical)](https://github.com/anuraghazra/github-readme-stats)
 
 ---------------------------------------
