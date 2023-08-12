@@ -2,7 +2,7 @@
   <img src="https://cdn.discordapp.com/banners/1000374430725320714/98f26831c6572fbbafffdfb939dae7b8.png?size=512"/>
 </p>
 
-### ☠ Hello my name is AkiraLofy, Founder of Lofy Gang and I would like to clarify some information.
+### ☠ Hello my name is AkiraLofy, Member of Lofy Gang and I would like to clarify some information.
 
 😀 1. Only I am responsible for my scripts and projects.<br>
 😁 2. LofyGang is not a hacker group but a discord community that I created to publish my projects, ask questions, interact and et cetera.<br>
